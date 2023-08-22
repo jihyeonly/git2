@@ -1,3 +1,3 @@
-#I love haerin
+I love haerin
 
 NEW JEANS NEW TEE
